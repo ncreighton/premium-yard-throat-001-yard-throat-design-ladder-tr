@@ -1,0 +1,2 @@
+# premium-yard-throat-001-yard-throat-design-ladder-tr
+Tired of losing track of your yard throat design tweaks and ladder track measurements? Stop juggling messy spreadsheets and crumpled notes.  This Notion template consolidates your entire model railroad craft hub—from throat geometry to ladder track spacing—into one organized system. Save hours of re-measuring and last-minute supply runs, and keep e
